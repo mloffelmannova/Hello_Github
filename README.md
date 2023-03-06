@@ -2,7 +2,8 @@
 
 ##### 
 Čauko, 
-je to něco o mě
+zde se můžeš dozvědět něco o mě
+:)
 
 https://educhem.cz/
 
